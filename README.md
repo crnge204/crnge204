@@ -68,7 +68,8 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 
 
 
-![3f848c72c925b86911ce99ec280a22b5](https://user-images.githubusercontent.com/129624783/229319761-94a6dc71-ee7b-4a58-89fe-518b25874d06.gif)
+![d30965a5](https://user-images.githubusercontent.com/129624783/229319791-b616ae7b-fda0-439b-a3f5-d3b14920c3f3.gif)
+
 
 
 
