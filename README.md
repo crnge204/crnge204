@@ -51,9 +51,10 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 
 ★ } im usually very social, feel free to interact with me unless stated otherwise, i dont bite 
 
-★ } im off-tab pretty often, if i dont publicly reply to you feel free to shoot me a whisper 
+★ } im off-tab pretty often, if i dont publicly reply to you feel free to shoot me a whisper ![dino2](https://user-images.githubusercontent.com/129624783/229319482-f37a6121-5548-417c-a4ff-c5283d73debc.gif)
 
-★ } some fandoms im in include FNAF, TF2, BTD, HTF, PTP, DNB, etc.
+
+★ } some fandoms im in include FNAF, TF2, BTD, HTF, PTP, DNB, etc. 
 
 ★ } im extremely judgemental, if you think im silenting judging you i probably am 
 
