@@ -63,7 +63,8 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 
 
 
-★ } I don't really have a DNI, if i dont like you ill hide you ![e7896505](https://user-images.githubusercontent.com/129624783/229313809-670e4d0e-a78d-48dd-bfdd-4207b0c94598.gif)
+★ } I don't really have a DNI, if i dont like you ill hide you ![tumblr_inline_p25mo3foq91ux8fd4_500](https://user-images.githubusercontent.com/129624783/229319709-38a5f756-27a5-44ee-91e7-90487783216e.gif)
+
 
 
 ![_goretober__cannibalisim_by_kouenli_dcp3pwm-fullview](https://user-images.githubusercontent.com/129624783/229315438-1a1ac12d-1843-4d12-903d-d2fa90cf0021.png)
