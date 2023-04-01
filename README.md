@@ -53,5 +53,10 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 
 ![_goretober__cannibalisim_by_kouenli_dcp3pwm-fullview](https://user-images.githubusercontent.com/129624783/229315438-1a1ac12d-1843-4d12-903d-d2fa90cf0021.png)
 
+ **XTRA SHIT ABOUT ME !!!**
+![f2u_rainbow_party_gif_by_crvyons_dcuez68-fullview](https://user-images.githubusercontent.com/129624783/229315558-152d1420-510b-4b23-995b-ab9ef11ffdb4.png)
+
+
+★ } avid clover collector on safe rus/chinese servers ![f2u___clover_by_profiledecor_dczzkwt-fullview](https://user-images.githubusercontent.com/129624783/229315504-b388e559-cb46-43f5-a507-8523dca86fff.png)
 
 
