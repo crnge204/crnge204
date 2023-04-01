@@ -55,7 +55,7 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 ★ } i do not like people to copy or take inspo off my skins as they do take time to make, so please dont ask for gifts just to try and recreate my style, im happy to help make skins and develop you new style ideas if you are feeling a bit unoriginal though!    ![c3acaa22](https://user-images.githubusercontent.com/129624783/229319920-9362c4b4-f1a8-4676-b356-da708a4e269f.gif)
   
 
-★ } im usually very social, feel free to interact with me unless stated otherwise, i dont bite 
+★ } im usually very social, feel free to interact with me unless stated otherwise, i dont bite im just controversial
 
 ★ } im off-tab pretty often, if i dont publicly reply to you feel free to shoot me a whisper ![aa80d970](https://user-images.githubusercontent.com/129624783/229319530-20ef98e2-fb24-4cbe-8cd7-1c629535929d.gif)
 
