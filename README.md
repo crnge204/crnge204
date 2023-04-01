@@ -14,7 +14,8 @@
 ╰ヾim extremely offensive ^_^ , snowflake free zone !1! ![2b12f291](https://user-images.githubusercontent.com/129624783/229313227-2e658169-5a62-4921-9d3c-9af90ef1f955.gif)
 
 
-main names i go by are **CRNGE** or CURT  ;; HE / HIM only, preferrably no they/them ![dbd4l4t-f33f4d66-8190-4e7c-b189-8208ae4c15b3](https://user-images.githubusercontent.com/129624783/229319542-553a4006-f316-4214-84fe-8a78fc15f081.gif)
+main names i go by are **CRNGE** or CURT  ;; HE / HIM only, preferrably no they/them ![tumblr_f6f458d70b80f89a9e96d84b05ce1267_dfb3c931_75](https://user-images.githubusercontent.com/129624783/229319738-5038d09f-db9e-49b5-9423-fc5d3eccdf3f.gif)
+
 
 
 **105k** on utube , 15-17, animator+artist ![a74534ea](https://user-images.githubusercontent.com/129624783/229313385-631ed8bb-4bbc-4869-aa1b-d177d02a99bc.gif)
@@ -63,7 +64,7 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 
 
 
-★ } I don't really have a DNI, if i dont like you ill hide you ![tumblr_inline_p25mo3foq91ux8fd4_500](https://user-images.githubusercontent.com/129624783/229319709-38a5f756-27a5-44ee-91e7-90487783216e.gif)
+★ } I don't really have a DNI, if i dont like you ill hide you ![davrn9t-1ba15caf-bb55-4786-9e3e-4904db3fbe8e](https://user-images.githubusercontent.com/129624783/229319729-69325d80-9c9d-4b2a-80e3-3aaa4af03a39.gif)
 
 
 
