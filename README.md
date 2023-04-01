@@ -50,5 +50,6 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 ★ } I don't really have a DNI, if i dont like you ill hide you ![e7896505](https://user-images.githubusercontent.com/129624783/229313809-670e4d0e-a78d-48dd-bfdd-4207b0c94598.gif)
 
 
+![d7nfoqp-13c2ac22-1a22-46f6-8134-939f909f7663](https://user-images.githubusercontent.com/129624783/229315398-fa44579d-b201-4692-84af-06b56ceb001e.gif)
 
 
