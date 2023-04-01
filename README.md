@@ -28,19 +28,20 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 
 
 
-![divider yoshi](https://user-images.githubusercontent.com/129624783/229313542-96664415-1e20-49cf-a940-3f9e08970ea7.png)
+![animusic17](https://user-images.githubusercontent.com/129624783/229313882-cd24d925-7705-40e4-9b15-571db9932930.gif)
 
 
 
-![xgTWug0](https://user-images.githubusercontent.com/129624783/229314579-017446af-8161-4a69-a903-d32f5dc7ec20.gif) } i mostly prefer small talk and compliments in whisper
+
+★ } i mostly prefer small talk and compliments in whisper
        ^ *public chat doesn't bother me though*
 
-![xgTWug0](https://user-images.githubusercontent.com/129624783/229314579-017446af-8161-4a69-a903-d32f5dc7ec20.gif)} im usually very social, feel free to interact with me unless stated otherwise, i dont bite 
+★ } im usually very social, feel free to interact with me unless stated otherwise, i dont bite 
 
-![xgTWug0](https://user-images.githubusercontent.com/129624783/229314579-017446af-8161-4a69-a903-d32f5dc7ec20.gif)} im off-tab pretty often, if i dont publicly reply to you feel free to shoot me a whisper 
+★ } im off-tab pretty often, if i dont publicly reply to you feel free to shoot me a whisper 
 
-![xgTWug0](https://user-images.githubusercontent.com/129624783/229314579-017446af-8161-4a69-a903-d32f5dc7ec20.gif)} I don't really have a DNI, if i dont like you ill hide you ![e7896505](https://user-images.githubusercontent.com/129624783/229313809-670e4d0e-a78d-48dd-bfdd-4207b0c94598.gif)
+★ } I don't really have a DNI, if i dont like you ill hide you ![e7896505](https://user-images.githubusercontent.com/129624783/229313809-670e4d0e-a78d-48dd-bfdd-4207b0c94598.gif)
 
-![animusic17](https://user-images.githubusercontent.com/129624783/229313882-cd24d925-7705-40e4-9b15-571db9932930.gif)
+
 
 
