@@ -48,15 +48,23 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 
 ★ } im off-tab pretty often, if i dont publicly reply to you feel free to shoot me a whisper 
 
+★ } some fandoms im in include FNAF, TF2, BTD, HTF, PTP, DNB, etc.
+
+★ } im extremely judgemental, if you think im silenting judging you i probably am 
+
 ★ } I don't really have a DNI, if i dont like you ill hide you ![e7896505](https://user-images.githubusercontent.com/129624783/229313809-670e4d0e-a78d-48dd-bfdd-4207b0c94598.gif)
 
 
 ![_goretober__cannibalisim_by_kouenli_dcp3pwm-fullview](https://user-images.githubusercontent.com/129624783/229315438-1a1ac12d-1843-4d12-903d-d2fa90cf0021.png)
 
- **XTRA SHIT ABOUT ME !!!**
+
+ **RANDOM STAMPS CAUSE I GOT BORED !!!**
 ![f2u_rainbow_party_gif_by_crvyons_dcuez68-fullview](https://user-images.githubusercontent.com/129624783/229315558-152d1420-510b-4b23-995b-ab9ef11ffdb4.png)
 
 
-★ } avid clover collector on safe rus/chinese servers ![f2u___clover_by_profiledecor_dczzkwt-fullview](https://user-images.githubusercontent.com/129624783/229315504-b388e559-cb46-43f5-a507-8523dca86fff.png)
+![tumblr_phldxzATQU1xlx2ufo2_250](https://user-images.githubusercontent.com/129624783/229315919-82016dba-5593-4f45-ba54-07df7779b438.gif) ![tumblr_pbt66eZvmr1xzybrpo1_250](https://user-images.githubusercontent.com/129624783/229315925-06c0691a-88d5-4ca6-a334-94d027ac3e50.gif) ![tumblr_inline_pcjgd8nplv1vss73l_250](https://user-images.githubusercontent.com/129624783/229315949-a98b4387-4c6b-45c1-8522-764439841219.gif) ![tumblr_inline_pcjgi5PBy61vss73l_250](https://user-images.githubusercontent.com/129624783/229315953-ed81a493-40ca-472a-9671-358f72fc6d42.gif) ![tumblr_p8ra5roiSk1xtxh11o1_250](https://user-images.githubusercontent.com/129624783/229315960-807f39e0-3b45-4b0e-98ef-9ec19a1a1ebd.gif)
+
+
+
 
 
