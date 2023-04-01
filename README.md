@@ -22,5 +22,6 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 
 **busy**;; upset / with friends / dniuf
 
-**✦. . ✦ **
+![1f49a8a6](https://user-images.githubusercontent.com/129624783/229313525-96060aeb-bc8f-4af2-b32f-a488d78d6e65.gif)
+
 
