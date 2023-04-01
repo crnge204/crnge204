@@ -26,4 +26,15 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 ![divider yoshi](https://user-images.githubusercontent.com/129624783/229313542-96664415-1e20-49cf-a940-3f9e08970ea7.png)
 
 
+★} i mostly prefer small talk and compliments in whisper
+^ *public chat doesn't bother me though*
+
+★} im usually very social, feel free to interact with me unless stated otherwise, i dont bite ![3f848c72c925b86911ce99ec280a22b5](https://user-images.githubusercontent.com/129624783/229313633-8145640c-8e40-4bae-88c2-0708dea9d274.gif)
+
+★} im off-tab pretty often, if i dont publicly reply to you feel free to shoot me a whisper 
+
+★} I don't really have a DNI, if i dont like you ill hide you ![e7896505](https://user-images.githubusercontent.com/129624783/229313809-670e4d0e-a78d-48dd-bfdd-4207b0c94598.gif)
+
+![animusic17](https://user-images.githubusercontent.com/129624783/229313882-cd24d925-7705-40e4-9b15-571db9932930.gif)
+
 
