@@ -58,11 +58,23 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 ![_goretober__cannibalisim_by_kouenli_dcp3pwm-fullview](https://user-images.githubusercontent.com/129624783/229315438-1a1ac12d-1843-4d12-903d-d2fa90cf0021.png)
 
 
- **RANDOM STAMPS CAUSE I GOT BORED !!!**
+ **RANDOM STAMPS N STUFF CAUSE I GOT BORED !!!**
 ![f2u_rainbow_party_gif_by_crvyons_dcuez68-fullview](https://user-images.githubusercontent.com/129624783/229315558-152d1420-510b-4b23-995b-ab9ef11ffdb4.png)
 
 
-![tumblr_phldxzATQU1xlx2ufo2_250](https://user-images.githubusercontent.com/129624783/229315919-82016dba-5593-4f45-ba54-07df7779b438.gif) ![tumblr_pbt66eZvmr1xzybrpo1_250](https://user-images.githubusercontent.com/129624783/229315925-06c0691a-88d5-4ca6-a334-94d027ac3e50.gif) ![tumblr_inline_pcjgd8nplv1vss73l_250](https://user-images.githubusercontent.com/129624783/229315949-a98b4387-4c6b-45c1-8522-764439841219.gif) ![tumblr_inline_pcjgi5PBy61vss73l_250](https://user-images.githubusercontent.com/129624783/229315953-ed81a493-40ca-472a-9671-358f72fc6d42.gif) ![tumblr_p8ra5roiSk1xtxh11o1_250](https://user-images.githubusercontent.com/129624783/229315960-807f39e0-3b45-4b0e-98ef-9ec19a1a1ebd.gif)
+![dfri96h-b2bf400e-9841-4710-9960-faac32035601](https://user-images.githubusercontent.com/129624783/229316445-9124c2c1-872f-4b5f-8d75-d593a17bda60.gif)
+![tumblr_phldxzATQU1xlx2ufo2_250](https://user-images.githubusercontent.com/129624783/229315919-82016dba-5593-4f45-ba54-07df7779b438.gif) ![tumblr_pbt66eZvmr1xzybrpo1_250](https://user-images.githubusercontent.com/129624783/229315925-06c0691a-88d5-4ca6-a334-94d027ac3e50.gif) ![tumblr_inline_pcjgd8nplv1vss73l_250](https://user-images.githubusercontent.com/129624783/229315949-a98b4387-4c6b-45c1-8522-764439841219.gif) ![tumblr_inline_pcjgi5PBy61vss73l_250](https://user-images.githubusercontent.com/129624783/229315953-ed81a493-40ca-472a-9671-358f72fc6d42.gif) ![tumblr_p8ra5roiSk1xtxh11o1_250](https://user-images.githubusercontent.com/129624783/229315960-807f39e0-3b45-4b0e-98ef-9ec19a1a1ebd.gif) ![tumblr_piczougJ2Z1sivjui_250](https://user-images.githubusercontent.com/129624783/229315985-87d9185d-f366-4954-87ac-245658c4a5e5.gif)![ddq0m5i-69abbff2-f0b3-47a6-b171-90699558bfe9](https://user-images.githubusercontent.com/129624783/229316011-4ea19c82-f144-4cd6-b920-f90570cc2997.gif) ![ddfp89e-44b17e5b-ff68-4cd4-9b66-391d61d08f5e](https://user-images.githubusercontent.com/129624783/229316012-c3b4a1ab-03c4-4156-8169-8303ce3ed7ab.gif) ![dc0up3y-17b25587-2668-4bec-9e5e-5a14a6ccbda9](https://user-images.githubusercontent.com/129624783/229316014-a955244a-3f15-4c4a-9cf0-892b66831af4.gif) ![ddfp8oz-48cb1cea-b0e4-4694-8b25-a1dfe97b0be0](https://user-images.githubusercontent.com/129624783/229316015-e91f151e-775c-4935-9a4d-7187e16eaefa.gif) ![ddgzuwy-2f163b31-8008-499f-8635-5d9c15c12475](https://user-images.githubusercontent.com/129624783/229316019-544dfeb4-1fdf-444f-af9d-e35f1c29dcbe.gif) ![ddff529-f698f02a-d6a7-4f82-ba48-19fb6636f98f](https://user-images.githubusercontent.com/129624783/229316415-dedb0667-58d8-46d9-8eaa-92ef93ff4d0a.gif) ![dffp9mi-917a7fcb-847b-4cd8-b9b1-415c2b162f1c](https://user-images.githubusercontent.com/129624783/229316420-d53d076f-bfdf-46bc-afd4-15c1f0e055c6.gif) ![dfr9iye-df4cc522-e378-45be-834e-366a4148bdca](https://user-images.githubusercontent.com/129624783/229316425-b0beb30a-1f11-446c-8e2d-304f8293c509.gif) ![dfelmf4-555b136c-9dc6-4b4e-a408-9b2b319c015e](https://user-images.githubusercontent.com/129624783/229316429-d6646ac2-4b55-49ed-8d19-0d3bddfe178f.gif) ![dcg4mcy-2cf16ea0-034c-47c6-9bd6-50decb173897](https://user-images.githubusercontent.com/129624783/229316465-637ae4ff-b260-4949-985b-aa3f0fb0bc6a.gif)
+
+
+
+
+
+
+
+
+
+
+
 
 
 
