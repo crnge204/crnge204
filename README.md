@@ -35,7 +35,8 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 
 
 
-![animusic17](https://user-images.githubusercontent.com/129624783/229313882-cd24d925-7705-40e4-9b15-571db9932930.gif)
+![dbx120u-7621c4c2-6fd0-4070-86e9-d81d78b70991](https://user-images.githubusercontent.com/129624783/229315463-e7df8675-1802-4162-a995-a1ac36c6c0de.gif)
+
 
 
 
