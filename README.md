@@ -67,7 +67,7 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 
 
 
-★ } I don't really have a DNI, if i dont like you ill hide you ![davrn9t-1ba15caf-bb55-4786-9e3e-4904db3fbe8e](https://user-images.githubusercontent.com/129624783/229319729-69325d80-9c9d-4b2a-80e3-3aaa4af03a39.gif)
+★ } I don't really have a DNI, if i dont like you ill hide you (unless you're sin, miriam, pip, evan, etc! you guys are assholes :3) ![davrn9t-1ba15caf-bb55-4786-9e3e-4904db3fbe8e](https://user-images.githubusercontent.com/129624783/229319729-69325d80-9c9d-4b2a-80e3-3aaa4af03a39.gif)
 
 
 
