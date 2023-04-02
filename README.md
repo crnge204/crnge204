@@ -52,7 +52,8 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 ★ } i mostly prefer small talk and compliments in whisper
        ^ *public chat doesn't bother me though*
        
-★ } i do not like people to copy or take inspo off my skins as they do take time to make, so please dont ask for gifts just to try and recreate my style, im happy to help make skins and develop you new style ideas if you are feeling a bit unoriginal though!    ![c3acaa22](https://user-images.githubusercontent.com/129624783/229319920-9362c4b4-f1a8-4676-b356-da708a4e269f.gif)
+★ } i do not like people to copy or take inspo off my skins as they do take time to make, so please dont ask for gifts just to try and recreate my style, im happy to help make skins and develop you new style ideas if you are feeling a bit unoriginal though! ![ddgqfeu-9834906d-d5a1-42cf-b85e-476e81f74906](https://user-images.githubusercontent.com/129624783/229386012-9cc8cc1c-6a2e-41dd-9d1a-6e894082f55b.gif)
+
   
 
 ★ } im usually very social, feel free to interact with me unless stated otherwise, i dont bite im just controversial
