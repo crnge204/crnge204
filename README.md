@@ -20,7 +20,7 @@ main names i go by are **CRNGE** or CURT  ;; HE / HIM only, preferrably no they/
 
 **105k** on utube , 18+,  animator+artist ![a74534ea](https://user-images.githubusercontent.com/129624783/229313385-631ed8bb-4bbc-4869-aa1b-d177d02a99bc.gif)
 
-aroace, genderfluid & taken (ily darren !!!) ![ddaret5-5bf84452-3aa4-4460-81b0-173d6b2938bf](https://user-images.githubusercontent.com/129624783/229313415-ccc68cb0-e4a3-43b0-b004-7092966c9a17.png) ![dbw2dom-a3c721ce-6994-4a99-9ebd-15601b3b122f](https://user-images.githubusercontent.com/129624783/229318261-5488e0d6-0ff4-4ec4-866b-d5f4bff5a452.png) 
+aroace, genderfluid & taken (ily [darren](https://github.com/crnge204fan) !!!) ![ddaret5-5bf84452-3aa4-4460-81b0-173d6b2938bf](https://user-images.githubusercontent.com/129624783/229313415-ccc68cb0-e4a3-43b0-b004-7092966c9a17.png) ![dbw2dom-a3c721ce-6994-4a99-9ebd-15601b3b122f](https://user-images.githubusercontent.com/129624783/229318261-5488e0d6-0ff4-4ec4-866b-d5f4bff5a452.png) 
 
  
 
