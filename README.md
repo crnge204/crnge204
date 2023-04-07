@@ -66,7 +66,7 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 
 ★ } im extremely judgemental, if you think im silenting judging you i probably am ![228d75cd](https://user-images.githubusercontent.com/129624783/229319529-1400f3bb-6f4f-4da6-9777-596a9603ae7d.gif)
 
-★ } i like to watch gore and plan on working at a morgue at some point in my life, i talk a lot about gorey things and death either in jokes or in general, if thats something you cant handle it's best you don't talk to me because i wont stop doing something i like for your comfort ^_^ !!
+★ } 6yr+ fixation in law enforcement, planning to go into the police academy in a few years, talk to me about criminology, livePD, crime cases, murder cases, etc! i love discussing about those types of things and will ramble for hours about it
 
 ★ } I don't really have a DNI, if i dont like you ill hide you (unless you're sin, miriam, pip, evan, etc! you guys are assholes :3) ![davrn9t-1ba15caf-bb55-4786-9e3e-4904db3fbe8e](https://user-images.githubusercontent.com/129624783/229319729-69325d80-9c9d-4b2a-80e3-3aaa4af03a39.gif)
 
