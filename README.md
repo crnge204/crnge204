@@ -1,17 +1,13 @@
+[gif
 
-![dbhx51u-7e2b42e0-fb6a-4317-9c84-b109a7361de0](https://user-images.githubusercontent.com/129624783/229315355-db1a88af-6f93-49e1-8f9d-e7be446218c0.gif)
-
-
-![dd18czw-2f6d89fd-362a-47ab-90ff-d37582bfe62c](https://user-images.githubusercontent.com/129624783/229315359-09b7e405-aace-4456-81f4-e8c63e0013e0.gif)
+[welc gif]
 
 
 
 
 
+╰ヾim extremely offensive ^_^ , snowflake free zone !1! [small gif]
 
-
-
-╰ヾim extremely offensive ^_^ , snowflake free zone !1! ![2b12f291](https://user-images.githubusercontent.com/129624783/229313227-2e658169-5a62-4921-9d3c-9af90ef1f955.gif)
 
 
 main names i go by are **CRNGE** or CURT  ;; HE / HIM only, preferrably no they/them ![tumblr_f6f458d70b80f89a9e96d84b05ce1267_dfb3c931_75](https://user-images.githubusercontent.com/129624783/229319738-5038d09f-db9e-49b5-9423-fc5d3eccdf3f.gif)
@@ -28,11 +24,14 @@ aroace, genderfluid & taken (ily [darren](https://github.com/crnge204fan) !!!) !
 RUS + GER / i speak russian, german, spanish & english 
 
 
-![dcf6a22-26f978ba-6416-4700-b3b9-c72dd299a772](https://user-images.githubusercontent.com/129624783/229317975-859f8ff4-354b-4f9e-bcef-49084359a192.png)
+
+[gif]
 
 
 
-PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624783/229313478-bd2e1f40-e672-4b6d-acce-4afe7178baaf.gif)
+
+
+PT STATUS MEANING. [gif]
 
 
 **looking for chat**;; happy / int
@@ -43,7 +42,7 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 
 
 
-![dbx120u-7621c4c2-6fd0-4070-86e9-d81d78b70991](https://user-images.githubusercontent.com/129624783/229315463-e7df8675-1802-4162-a995-a1ac36c6c0de.gif)
+[gif]
 
 
 
@@ -52,24 +51,22 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 ★ } i mostly prefer small talk and compliments in whisper
        ^ *public chat doesn't bother me though*
        
-★ } i do not like people to copy or take inspo off my skins as they do take time to make, so please dont ask for gifts just to try and recreate my style, im happy to help make skins and develop you new style ideas if you are feeling a bit unoriginal though! ![ddgqfeu-9834906d-d5a1-42cf-b85e-476e81f74906](https://user-images.githubusercontent.com/129624783/229386012-9cc8cc1c-6a2e-41dd-9d1a-6e894082f55b.gif)
+★ } i do not like people to copy or take inspo off my skins as they do take time to make, so please dont ask for gifts just to try and recreate my style, im happy to help make skins and develop you new style ideas if you are feeling a bit unoriginal though! [small gif]
 
   
 
 ★ } im usually very social, feel free to interact with me unless stated otherwise, i dont bite im just controversial
 
-★ } im off-tab pretty often, if i dont publicly reply to you feel free to shoot me a whisper ![aa80d970](https://user-images.githubusercontent.com/129624783/229319530-20ef98e2-fb24-4cbe-8cd7-1c629535929d.gif)
-
+★ } im off-tab pretty often, if i dont publicly reply to you feel free to shoot me a whisper [small gif]
 
 
 ★ } some fandoms im in include FNAF, TF2, BTD, HTF, PTP, DNB, etc. 
 
-★ } im extremely judgemental, if you think im silenting judging you i probably am ![228d75cd](https://user-images.githubusercontent.com/129624783/229319529-1400f3bb-6f4f-4da6-9777-596a9603ae7d.gif)
+★ } im extremely judgemental but i make a lot of offensive jokes, dont take them 2 heart [small gif]
 
 ★ } 6yr+ fixation in law enforcement, planning to go into the police academy in a few years, talk to me about criminology, livePD, crime cases, murder cases, etc! i love discussing about those types of things and will ramble for hours about it ^_^ !! proudly pro law enforcement, pro PF
 
-★ } I don't really have a DNI, if i dont like you ill hide you (unless you're sin, miriam, pip, evan, etc! you guys are assholes :3) ![davrn9t-1ba15caf-bb55-4786-9e3e-4904db3fbe8e](https://user-images.githubusercontent.com/129624783/229319729-69325d80-9c9d-4b2a-80e3-3aaa4af03a39.gif)
-
+★ } I don't really have a DNI, if i dont like you ill hide you 
 
 
 
@@ -79,7 +76,7 @@ PT STATUS MEANING. .![908fa6ab](https://user-images.githubusercontent.com/129624
 
 
  **RANDOM STAMPS N STUFF CAUSE I GOT BORED !!!**
-![f2u_rainbow_party_gif_by_crvyons_dcuez68-fullview](https://user-images.githubusercontent.com/129624783/229315558-152d1420-510b-4b23-995b-ab9ef11ffdb4.png)
+[gif]
 
 
 ![dfri96h-b2bf400e-9841-4710-9960-faac32035601](https://user-images.githubusercontent.com/129624783/229316445-9124c2c1-872f-4b5f-8d75-d593a17bda60.gif)
