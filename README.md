@@ -1,37 +1,49 @@
-[gif
-
-[welc gif]
 
 
+![dccney4-a0d81504-25c8-410e-a2ef-9dec4fdc5d9f](https://user-images.githubusercontent.com/129624783/230548063-131663e5-0db7-456f-bd5d-434cb6752415.gif)
 
-
-
-╰ヾim extremely offensive ^_^ , snowflake free zone !1! [small gif]
+![dc3h5ok-e4261769-f6f7-4c9c-b6ea-1bb831984a15](https://user-images.githubusercontent.com/129624783/230548488-52464612-1078-4eca-9381-12fdfed65fd4.gif)
 
 
 
-main names i go by are **CRNGE** or CURT  ;; HE / HIM only, preferrably no they/them ![tumblr_f6f458d70b80f89a9e96d84b05ce1267_dfb3c931_75](https://user-images.githubusercontent.com/129624783/229319738-5038d09f-db9e-49b5-9423-fc5d3eccdf3f.gif)
+
+╰ヾ problematic & controversial zone , you have been warned ![tumblr_7723e883ed36b472998626006b7764a9_88fb3881_75](https://user-images.githubusercontent.com/129624783/230549231-db4daa71-b4a5-49aa-aeea-827841ab5feb.gif)
 
 
 
-**105k** on utube , 18+,  animator+artist ![a74534ea](https://user-images.githubusercontent.com/129624783/229313385-631ed8bb-4bbc-4869-aa1b-d177d02a99bc.gif)
 
-aroace, genderfluid & taken (ily [darren](https://github.com/crnge204fan) !!!) ![ddaret5-5bf84452-3aa4-4460-81b0-173d6b2938bf](https://user-images.githubusercontent.com/129624783/229313415-ccc68cb0-e4a3-43b0-b004-7092966c9a17.png) ![dbw2dom-a3c721ce-6994-4a99-9ebd-15601b3b122f](https://user-images.githubusercontent.com/129624783/229318261-5488e0d6-0ff4-4ec4-866b-d5f4bff5a452.png) 
+main names i go by are **CRNGE**, *CLYDE* or CURT  ;; HE / HIM only, preferrably no they/them 
+
+
+
+**105k** on Utube , 8teen,  animator+artist ![affc41ca](https://user-images.githubusercontent.com/129624783/230549655-f47b77b3-daae-405a-99d8-5d97827aa204.gif)
+
+
+
+
+
+aroace, genderfluid & taken (ily [darren](https://github.com/crnge204fan)) 
 
  
 
 
-RUS + GER / i speak russian, german, spanish & english 
+RU, INFJ / i speak russian, german, spanish & english 
 
-
-
-[gif]
+![839710cd](https://user-images.githubusercontent.com/129624783/230549613-f841ba14-5aed-40f4-a62f-488bb027a669.gif)
 
 
 
 
+![choice_cuts_by_killerklutz_dbrgdnv-fullview](https://user-images.githubusercontent.com/129624783/230548023-d183b57a-985d-40e2-a780-c0ae2d7ff4f6.png)
 
-PT STATUS MEANING. [gif]
+
+
+
+
+
+PT STATUS MEANING. ![ddit567-cefbfbff-63b7-4f87-b5f5-11819bf885a8](https://user-images.githubusercontent.com/129624783/230550399-d1374c61-5ad1-493f-bc65-7e7f46d5fb99.gif)
+
+
 
 
 **looking for chat**;; happy / int
@@ -42,7 +54,8 @@ PT STATUS MEANING. [gif]
 
 
 
-[gif]
+
+![barbed_wire_voodoo_doll_f2u_by_nerdy_pixel_girl_ddj995a-fullview](https://user-images.githubusercontent.com/129624783/230548008-b784e10e-d4f4-42b3-8031-0464b412c609.png)
 
 
 
@@ -51,32 +64,40 @@ PT STATUS MEANING. [gif]
 ★ } i mostly prefer small talk and compliments in whisper
        ^ *public chat doesn't bother me though*
        
-★ } i do not like people to copy or take inspo off my skins as they do take time to make, so please dont ask for gifts just to try and recreate my style, im happy to help make skins and develop you new style ideas if you are feeling a bit unoriginal though! [small gif]
+★ } i do not like people to copy or take inspo off my skins as they do take time to make, so please dont ask for gifts just to try and recreate my style, im happy to help make skins and develop you new style ideas if you are feeling a bit unoriginal though! 
 
   
 
-★ } im usually very social, feel free to interact with me unless stated otherwise, i dont bite im just controversial
+★ } im usually very social, feel free to interact with me unless stated otherwise, i dont bite im just controversial ![slicy_slice__f2u__pixel_icon_by_goblinkink_dbq1ac6-fullview](https://user-images.githubusercontent.com/129624783/230550359-ade8171b-e857-4d6b-84f5-5220ac4531a3.png)
 
-★ } im off-tab pretty often, if i dont publicly reply to you feel free to shoot me a whisper [small gif]
+
+★ } im off-tab pretty often, if i dont publicly reply to you feel free to shoot me a whisper 
 
 
 ★ } some fandoms im in include FNAF, TF2, BTD, HTF, PTP, DNB, etc. 
 
-★ } im extremely judgemental but i make a lot of offensive jokes, dont take them 2 heart [small gif]
+★ } im extremely judgemental but i make a lot of offensive jokes, dont take them 2 heart ![8ca5ee58](https://user-images.githubusercontent.com/129624783/230548685-65d1244a-e41a-465b-baeb-09da8306fdc0.gif)
+
 
 ★ } 6yr+ fixation in law enforcement, planning to go into the police academy in a few years, talk to me about criminology, livePD, crime cases, murder cases, etc! i love discussing about those types of things and will ramble for hours about it ^_^ !! proudly pro law enforcement, pro PF
 
-★ } I don't really have a DNI, if i dont like you ill hide you 
+★ } I don't really have a DNI, if i dont like you ill hide you ![_f2u__hunting_season_by_lost_vhs_tape_dcdqk4r-fullview](https://user-images.githubusercontent.com/129624783/230550423-f291ad13-10d3-4598-8abc-753e8c6fcc3f.png)
 
 
 
 
 
+![free_to_use___meat_icon_by_blusagi_dbpt4dx-fullview](https://user-images.githubusercontent.com/129624783/230548182-d0c0b06e-72a4-48bc-afa6-6c0c7fce9274.png)
+
+![dadfy8b-74abbe4f-377d-4a23-ab74-46c9d011fd1f](https://user-images.githubusercontent.com/129624783/230548345-a9626731-a2d9-4633-b494-bf49b11004f5.gif)
 
 
 
- **RANDOM STAMPS N STUFF CAUSE I GOT BORED !!!**
-[gif]
+ **RANDOM STAMPS N STUFF CAUSE I GOT BORED !!!** 
+
+
+![f2u_rainbow_party_gif_by_crvyons_dcuez68-fullview](https://user-images.githubusercontent.com/129624783/230550498-63977127-39a6-43ea-885e-da3c22115509.png)
+
 
 
 ![dfri96h-b2bf400e-9841-4710-9960-faac32035601](https://user-images.githubusercontent.com/129624783/229316445-9124c2c1-872f-4b5f-8d75-d593a17bda60.gif)
@@ -92,6 +113,7 @@ PT STATUS MEANING. [gif]
 
 
 
+![repost___gore_whore_stamp_by_flaiki_dd6h9nq-fullview](https://user-images.githubusercontent.com/129624783/230548530-d00c2fac-71f7-4b08-b848-010f517b87f5.png)
 ![d1o6knj-6d392c54-c906-462c-bbc0-d7d4e2b897bf](https://user-images.githubusercontent.com/129624783/229316513-6c340ab2-878a-40d0-8fe6-520416f64e2d.gif) ![rainbow_emoticon_by_st4mps_dcknhdy-fullview](https://user-images.githubusercontent.com/129624783/229316518-e595c87a-b48a-4087-97e7-a3dc37b326f6.png) ![tumblr_pagu488kG61xu4cp2o5_100](https://user-images.githubusercontent.com/129624783/229316524-58c170bb-423d-4c58-ade1-53cb7543bf7e.gif) ![tumblr_inline_pgas0a4G5U1v11djx_500](https://user-images.githubusercontent.com/129624783/229316532-b60eb444-6934-429c-92d4-30372d661165.png) ![d793w46-ac03a21a-a1e1-4f4e-82b6-845ea28038f3](https://user-images.githubusercontent.com/129624783/229316537-d37e9501-1d3e-42fa-88ba-45432ce742cd.png) ![dcg3huf-782f8059-3d3e-4301-b770-0d715e4e6dbc](https://user-images.githubusercontent.com/129624783/229316540-c9a68461-87d7-40be-ac1d-951e4ecef42a.png) ![tumblr_inline_pgas04Ozda1v11djx_500](https://user-images.githubusercontent.com/129624783/229316542-7a232828-bba6-4f80-9450-14c61ac7b7bf.png) ![tumblr_inline_paunrgld531v11djx_100](https://user-images.githubusercontent.com/129624783/229316545-90130963-2866-4b35-919b-61b51749281f.gif) ![d48nf7q-b9ddf331-aa21-44ef-ad7e-d248998bcf28](https://user-images.githubusercontent.com/129624783/229316554-36f2fb59-f940-42a0-a918-e25bdbe2577e.gif) ![horny_pride_flag_stamp_by_piss_party_dctt8q5-fullview](https://user-images.githubusercontent.com/129624783/229316564-8813e36b-6cd4-46f8-8cd6-e199c79408bc.jpg) ![super_edgy_stamp_3_by_punk_alien_dca3eic-fullview](https://user-images.githubusercontent.com/129624783/229317362-b18b4f81-808d-472f-962d-e9f8ce922a09.png) ![dd7fy40-1bb6ba9b-02dc-4290-987d-147b690b7d9d](https://user-images.githubusercontent.com/129624783/229317418-86f9141f-88fe-4642-a333-7c00556ca0ad.gif) ![d3aq0hl-52147c97-366f-485a-b12c-c6acb8695653](https://user-images.githubusercontent.com/129624783/229317487-84f6c813-f12f-4169-9536-787700c14635.gif) ![stripy_socks_stamp_by_kezzi_rose_d181j6b-fullview](https://user-images.githubusercontent.com/129624783/229317525-66a39a3b-429b-44bf-921f-2e94e03a1fc4.png) ![dyfciz-2f1b0fb0-454e-43cf-a4bd-51ae45acaff6](https://user-images.githubusercontent.com/129624783/229319227-2a319283-5718-4c08-9046-8cf949aeb25c.gif) ![d18hyu9-e13dff27-ee13-4cc1-ba3d-a3b580729bbd](https://user-images.githubusercontent.com/129624783/229319233-0f1a212b-c2db-45c6-ae02-ff723fb8d3b9.gif) ![d14x7ll-5be36bc4-7812-4f54-8d9d-84a4a465a6fa](https://user-images.githubusercontent.com/129624783/229319240-c3457518-f44a-4ed4-942e-ddc8b804e8ab.gif) ![stamp___mspaint_user_by_firstfear_d76fczj-fullview](https://user-images.githubusercontent.com/129624783/229319245-09c5086a-063e-4569-a489-74febee1c4a6.png) ![stamp__middle_of_the_night_by_roxy317_d15djpe-fullview](https://user-images.githubusercontent.com/129624783/229319264-ab54eccc-c134-410a-8aa7-1d15e4b98eeb.png) ![dhhwi8-c6b38b64-2a22-415a-bd26-936388a10753](https://user-images.githubusercontent.com/129624783/229319268-04694afc-70c4-4023-b2de-82113e0b2d72.gif) ![the_log_out_stamp_by_busiris_dy3mlq-fullview](https://user-images.githubusercontent.com/129624783/229319275-781de095-f40d-4f91-a591-a4a33cdaf7d0.png) ![d2fdlec-5558d751-8d59-4f2e-a5b2-7ab38da7a515](https://user-images.githubusercontent.com/129624783/229319282-32fa0031-4232-467f-87d6-767567b86716.gif) ![own_style_stamp_by_hyperactivemothman_d24yvqc-fullview](https://user-images.githubusercontent.com/129624783/229319284-300b303e-6ae3-4909-ad3f-6641c33b794c.jpg) ![d1e13b5-6c134636-0247-40b6-8380-3fce82cfa936](https://user-images.githubusercontent.com/129624783/229319287-27d0bbc6-14f2-4e44-a6f9-f45e22b7b870.gif) ![_explaining__stamp_by_sonira_stamps_d2hzfor-fullview](https://user-images.githubusercontent.com/129624783/229319297-bc6fe599-0b14-495d-906e-5e5f1100fe3b.png) ![cis_ally_stamp_by_darkishweb_dbqo3q2-fullview](https://user-images.githubusercontent.com/129624783/229319610-e249e3d2-3c7a-45db-9f48-2bbaff343660.png) ![yeah_i_overreact_quite_often_by_justyoungheroes_dah84z5-fullview](https://user-images.githubusercontent.com/129624783/229385491-ee669e05-1165-460a-a414-cb16a1b25c49.png) ![dci7qc0-dab010f4-0777-4151-8e59-c262f56f298e](https://user-images.githubusercontent.com/129624783/229652779-3f494230-94f2-4204-aac8-8522323921c2.png) 
 
 
