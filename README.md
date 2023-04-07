@@ -18,7 +18,7 @@ main names i go by are **CRNGE**, *CLYDE* or CURT  ;; HE / HIM only, preferrably
 
 **105k** on Utube , 8teen,  animator+artist ![affc41ca](https://user-images.githubusercontent.com/129624783/230549655-f47b77b3-daae-405a-99d8-5d97827aa204.gif)
 
-
+✱ *Crnge204 on ALL platforms*
 
 
 
@@ -29,19 +29,17 @@ aroace, genderfluid & taken (ily [darren](https://github.com/crnge204fan))
 
 RU, INFJ / i speak russian, german, spanish & english 
 
-![839710cd](https://user-images.githubusercontent.com/129624783/230549613-f841ba14-5aed-40f4-a62f-488bb027a669.gif)
-
-
 
 
 ![choice_cuts_by_killerklutz_dbrgdnv-fullview](https://user-images.githubusercontent.com/129624783/230548023-d183b57a-985d-40e2-a780-c0ae2d7ff4f6.png)
 
 
 
+![ddit567-cefbfbff-63b7-4f87-b5f5-11819bf885a8](https://user-images.githubusercontent.com/129624783/230550773-81228f66-8464-4e85-aa42-c10f94bf7eaa.gif)
 
 
 
-PT STATUS MEANING. ![ddit567-cefbfbff-63b7-4f87-b5f5-11819bf885a8](https://user-images.githubusercontent.com/129624783/230550399-d1374c61-5ad1-493f-bc65-7e7f46d5fb99.gif)
+PT STATUS MEANING. 
 
 
 
@@ -61,27 +59,28 @@ PT STATUS MEANING. ![ddit567-cefbfbff-63b7-4f87-b5f5-11819bf885a8](https://user-
 
 
 
-★ } i mostly prefer small talk and compliments in whisper
-       ^ *public chat doesn't bother me though*
+✱ } i mostly prefer small talk and compliments in whisper
+      
+ ^ *public chat doesn't bother me though*
        
-★ } i do not like people to copy or take inspo off my skins as they do take time to make, so please dont ask for gifts just to try and recreate my style, im happy to help make skins and develop you new style ideas if you are feeling a bit unoriginal though! 
+✱ } i do not like people to copy or take inspo off my skins as they do take time to make, so please dont ask for gifts just to try and recreate my style, im happy to help make skins and develop you new style ideas if you are feeling a bit unoriginal though! 
 
   
 
-★ } im usually very social, feel free to interact with me unless stated otherwise, i dont bite im just controversial ![slicy_slice__f2u__pixel_icon_by_goblinkink_dbq1ac6-fullview](https://user-images.githubusercontent.com/129624783/230550359-ade8171b-e857-4d6b-84f5-5220ac4531a3.png)
+✱ } im usually very social, feel free to interact with me unless stated otherwise, i dont bite im just controversial ![slicy_slice__f2u__pixel_icon_by_goblinkink_dbq1ac6-fullview](https://user-images.githubusercontent.com/129624783/230550359-ade8171b-e857-4d6b-84f5-5220ac4531a3.png)
 
 
-★ } im off-tab pretty often, if i dont publicly reply to you feel free to shoot me a whisper 
+✱ } im off-tab pretty often, if i dont publicly reply to you feel free to shoot me a whisper 
 
 
-★ } some fandoms im in include FNAF, TF2, BTD, HTF, PTP, DNB, etc. 
+✱ } some fandoms im in include FNAF, TF2, BTD, HTF, PTP, DNB, etc. 
 
-★ } im extremely judgemental but i make a lot of offensive jokes, dont take them 2 heart ![8ca5ee58](https://user-images.githubusercontent.com/129624783/230548685-65d1244a-e41a-465b-baeb-09da8306fdc0.gif)
+✱ } im extremely judgemental but i make a lot of offensive jokes, dont take them 2 heart ![8ca5ee58](https://user-images.githubusercontent.com/129624783/230548685-65d1244a-e41a-465b-baeb-09da8306fdc0.gif)
 
 
-★ } 6yr+ fixation in law enforcement, planning to go into the police academy in a few years, talk to me about criminology, livePD, crime cases, murder cases, etc! i love discussing about those types of things and will ramble for hours about it ^_^ !! proudly pro law enforcement, pro PF
+✱ } 6yr+ fixation in law enforcement, planning to go into the police academy in a few years, talk to me about criminology, livePD, crime cases, murder cases, etc! i love discussing about those types of things and will ramble for hours about it ^_^ !! proudly pro law enforcement, pro PF
 
-★ } I don't really have a DNI, if i dont like you ill hide you ![_f2u__hunting_season_by_lost_vhs_tape_dcdqk4r-fullview](https://user-images.githubusercontent.com/129624783/230550423-f291ad13-10d3-4598-8abc-753e8c6fcc3f.png)
+✱ } I don't really have a DNI, if i dont like you ill hide you ![_f2u__hunting_season_by_lost_vhs_tape_dcdqk4r-fullview](https://user-images.githubusercontent.com/129624783/230550423-f291ad13-10d3-4598-8abc-753e8c6fcc3f.png)
 
 
 
@@ -93,7 +92,7 @@ PT STATUS MEANING. ![ddit567-cefbfbff-63b7-4f87-b5f5-11819bf885a8](https://user-
 
 
 
- **RANDOM STAMPS N STUFF CAUSE I GOT BORED !!!** 
+ **!!! RANDOM STAMPS N BLINKIES CAUSE I GOT BORED !!!** 
 
 
 ![f2u_rainbow_party_gif_by_crvyons_dcuez68-fullview](https://user-images.githubusercontent.com/129624783/230550498-63977127-39a6-43ea-885e-da3c22115509.png)
