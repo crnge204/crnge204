@@ -57,7 +57,8 @@ PT STATUS MEANING.
 
 
 
-✱ } i mostly prefer small talk and compliments in whisper
+✱ } i mostly prefer small talk and compliments in whisper ![f211221](https://user-images.githubusercontent.com/129624783/230557372-6ef94c65-0bc5-46e5-abb7-5b5eed1167be.gif)
+
       
  ^ *public chat doesn't bother me though*
        
@@ -65,7 +66,8 @@ PT STATUS MEANING.
 
   
 
-✱ } im usually very social, feel free to interact with me unless stated otherwise, i dont bite im just controversial ![11fdfc1c](https://user-images.githubusercontent.com/129624783/230556774-ad6a8875-d003-49b1-bc54-24e28df3a0a8.gif)
+✱ } im usually very social, feel free to interact with me unless stated otherwise, i dont bite im just controversial ![b63d0e5f](https://user-images.githubusercontent.com/129624783/230557464-bdedbcbd-b611-444e-976f-560abeb108ed.gif)
+
 
 
 
