@@ -1,14 +1,8 @@
-
-
-![dccney4-a0d81504-25c8-410e-a2ef-9dec4fdc5d9f](https://user-images.githubusercontent.com/129624783/230548063-131663e5-0db7-456f-bd5d-434cb6752415.gif)
-
-![dc3h5ok-e4261769-f6f7-4c9c-b6ea-1bb831984a15](https://user-images.githubusercontent.com/129624783/230548488-52464612-1078-4eca-9381-12fdfed65fd4.gif)
+![359c46a2](https://user-images.githubusercontent.com/129624783/230555033-7ad463da-b6b3-495b-910a-f4280f10239a.gif)
 
 
 
-
-╰ヾ problematic & controversial zone , you have been warned ![tumblr_7723e883ed36b472998626006b7764a9_88fb3881_75](https://user-images.githubusercontent.com/129624783/230549231-db4daa71-b4a5-49aa-aeea-827841ab5feb.gif)
-
+╰ヾ problematic & controversial zone , you have been warned ![908fa6ab](https://user-images.githubusercontent.com/129624783/230555231-bd0d7415-def4-4472-ad94-a7a3fd52f7d8.gif)
 
 
 
@@ -16,7 +10,8 @@ main names i go by are **CRNGE**, *CLYDE* or CURT  ;; HE / HIM only, preferrably
 
 
 
-**105k** on Utube , 8teen,  animator+artist ![affc41ca](https://user-images.githubusercontent.com/129624783/230549655-f47b77b3-daae-405a-99d8-5d97827aa204.gif)
+**105k** on Utube , 8teen,  animator+artist ![a74534ea](https://user-images.githubusercontent.com/129624783/230555298-2f4fa235-87b2-4fc0-9ef2-e85e08aea6eb.gif)
+
 
 ✱ *Crnge204 on ALL platforms*
 
@@ -31,11 +26,13 @@ RU, INFJ / i speak russian, german, spanish & english
 
 
 
-![choice_cuts_by_killerklutz_dbrgdnv-fullview](https://user-images.githubusercontent.com/129624783/230548023-d183b57a-985d-40e2-a780-c0ae2d7ff4f6.png)
+![dd9wzpu-085c7dae-e593-4b22-8d78-a47490beed64](https://user-images.githubusercontent.com/129624783/230557041-7cdd45f8-3aeb-4674-9336-c8953790a3e7.gif)
 
 
 
-![ddit567-cefbfbff-63b7-4f87-b5f5-11819bf885a8](https://user-images.githubusercontent.com/129624783/230550773-81228f66-8464-4e85-aa42-c10f94bf7eaa.gif)
+
+![bf7610fb](https://user-images.githubusercontent.com/129624783/230555476-26dfb2d1-3aa3-4378-b383-8999a961d32e.gif)
+
 
 
 
@@ -52,8 +49,9 @@ PT STATUS MEANING.
 
 
 
+![f2u_access_denied_by_ludwigetc_db49u01-fullview](https://user-images.githubusercontent.com/129624783/230556336-420fa4fe-630b-4263-a3ab-24d92982f37a.png)
 
-![barbed_wire_voodoo_doll_f2u_by_nerdy_pixel_girl_ddj995a-fullview](https://user-images.githubusercontent.com/129624783/230548008-b784e10e-d4f4-42b3-8031-0464b412c609.png)
+
 
 
 
@@ -67,7 +65,8 @@ PT STATUS MEANING.
 
   
 
-✱ } im usually very social, feel free to interact with me unless stated otherwise, i dont bite im just controversial ![slicy_slice__f2u__pixel_icon_by_goblinkink_dbq1ac6-fullview](https://user-images.githubusercontent.com/129624783/230550359-ade8171b-e857-4d6b-84f5-5220ac4531a3.png)
+✱ } im usually very social, feel free to interact with me unless stated otherwise, i dont bite im just controversial ![11fdfc1c](https://user-images.githubusercontent.com/129624783/230556774-ad6a8875-d003-49b1-bc54-24e28df3a0a8.gif)
+
 
 
 ✱ } im off-tab pretty often, if i dont publicly reply to you feel free to shoot me a whisper 
@@ -75,27 +74,21 @@ PT STATUS MEANING.
 
 ✱ } some fandoms im in include FNAF, TF2, BTD, HTF, PTP, DNB, etc. 
 
-✱ } im extremely judgemental but i make a lot of offensive jokes, dont take them 2 heart ![8ca5ee58](https://user-images.githubusercontent.com/129624783/230548685-65d1244a-e41a-465b-baeb-09da8306fdc0.gif)
+✱ } im extremely judgemental but i make a lot of offensive jokes, dont take them 2 heart ![3a0db8db](https://user-images.githubusercontent.com/129624783/230556853-49240374-76b1-43df-9afc-c0261950ff3c.gif)
 
 
 ✱ } 6yr+ fixation in law enforcement, planning to go into the police academy in a few years, talk to me about criminology, livePD, crime cases, murder cases, etc! i love discussing about those types of things and will ramble for hours about it ^_^ !! proudly pro law enforcement, pro PF
 
-✱ } I don't really have a DNI, if i dont like you ill hide you ![_f2u__hunting_season_by_lost_vhs_tape_dcdqk4r-fullview](https://user-images.githubusercontent.com/129624783/230550423-f291ad13-10d3-4598-8abc-753e8c6fcc3f.png)
+✱ } I don't really have a DNI, if i dont like you ill hide you ![1d3e6473](https://user-images.githubusercontent.com/129624783/230557150-741b32cf-c512-46ea-900c-21e45fdc96ac.gif)
 
 
 
 
+![images (1)](https://user-images.githubusercontent.com/129624783/230554974-c31f78c8-f91f-4195-9371-e09483892549.jpg)
 
-![free_to_use___meat_icon_by_blusagi_dbpt4dx-fullview](https://user-images.githubusercontent.com/129624783/230548182-d0c0b06e-72a4-48bc-afa6-6c0c7fce9274.png)
-
-![dadfy8b-74abbe4f-377d-4a23-ab74-46c9d011fd1f](https://user-images.githubusercontent.com/129624783/230548345-a9626731-a2d9-4633-b494-bf49b11004f5.gif)
-
+![b63d0e5f](https://user-images.githubusercontent.com/129624783/230555007-a8cbb477-10b9-4845-a650-8323d7204be7.gif)
 
 
- **!!! RANDOM STAMPS N BLINKIES CAUSE I GOT BORED !!!** 
-
-
-![f2u_rainbow_party_gif_by_crvyons_dcuez68-fullview](https://user-images.githubusercontent.com/129624783/230550498-63977127-39a6-43ea-885e-da3c22115509.png)
 
 
 
