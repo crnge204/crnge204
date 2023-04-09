@@ -45,7 +45,7 @@ PT STATUS MEANING.
 
 **away**;; tired / drawing / mostly off-tab
 
-**busy**;; upset / with friends / dniuf
+**busy**;; upset / with partner / dniuf
 
 
 
