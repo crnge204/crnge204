@@ -6,7 +6,7 @@
 
 
 
-main names i go by are **CRNGE**, *CLYDE* or CURT  ;; HE / HIM only, preferrably no they/them 
+main names i go by are **CRNGE**, *CLYDE* or CURT  ;; HE / SHE ONLY, preferrably no they/them 
 
 
 
@@ -57,10 +57,10 @@ PT STATUS MEANING.
 
 
 
-✱ } i mostly prefer small talk and compliments in whisper ![f211221](https://user-images.githubusercontent.com/129624783/230557372-6ef94c65-0bc5-46e5-abb7-5b5eed1167be.gif)
+✱ } extremely psychotic, catatonic & paranoid schizophrenic with ADHD, heavily medicated ^_< ![f211221](https://user-images.githubusercontent.com/129624783/230557372-6ef94c65-0bc5-46e5-abb7-5b5eed1167be.gif)
 
       
- ^ *public chat doesn't bother me though*
+ ^ *im open to questions, yes im diagnosed.*
        
 ✱ } i do not like people to copy or take inspo off my skins as they do take time to make, so please dont ask for gifts just to try and recreate my style, im happy to help make skins and develop you new style ideas if you are feeling a bit unoriginal though! 
 
@@ -79,7 +79,7 @@ PT STATUS MEANING.
 ✱ } im extremely judgemental but i make a lot of offensive jokes, dont take them 2 heart ![3a0db8db](https://user-images.githubusercontent.com/129624783/230556853-49240374-76b1-43df-9afc-c0261950ff3c.gif)
 
 
-✱ } 6yr+ fixation in law enforcement, planning to go into the police academy in a few years, talk to me about criminology, livePD, crime cases, murder cases, etc! i love discussing about those types of things and will ramble for hours about it ^_^ !! proudly pro law enforcement, pro PF
+✱ } tend to be unknowingly manipulative, let me know if that happens n ill take time away from you (nothing personal!)
 
 ✱ } I don't really have a DNI, if i dont like you ill hide you ![1d3e6473](https://user-images.githubusercontent.com/129624783/230557150-741b32cf-c512-46ea-900c-21e45fdc96ac.gif)
 
