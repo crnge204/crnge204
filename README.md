@@ -6,7 +6,7 @@
 
 
 
-main names i go by are **CRNGE**, *CLYDE* or CURT  ;; HE / SHE ONLY, preferrably no they/them 
+main names i go by are **CRNGE**, *CLYDE* or CURT  ;; HE / HIM ONLY, preferrably no they/them 
 
 
 
@@ -66,12 +66,12 @@ PT STATUS MEANING.
 
   
 
-✱ } im usually very social, feel free to interact with me unless stated otherwise, i dont bite im just controversial ![b63d0e5f](https://user-images.githubusercontent.com/129624783/230557464-bdedbcbd-b611-444e-976f-560abeb108ed.gif)
+✱ } im usually very social, feel free to interact with me unless stated otherwise, whispers preferred since im off-tab pretty often! i dont bite im just controversial ![b63d0e5f](https://user-images.githubusercontent.com/129624783/230557464-bdedbcbd-b611-444e-976f-560abeb108ed.gif)
 
 
 
+✱ } some music artists i like: nirvana, weezer, system of a down, blink-182, destroy boys, lil darkie, rebzyyx, vampyx, 6arelyhuman, iluvern!, horrormovies, h3artcrush, goreshit, mindless self indulgence, blur, will wood, jack stauber, freddie dredd, kurffew, luci4, foo fighters, cuco, maple, rammstein, the offspring, anti-flag, deftones, green day, radiohead, limp bizkit, red hot chili peppers, linkin park, beck, the smashing pumpkins, goldfinger, gorillaz & many more ![908fa6ab](https://user-images.githubusercontent.com/129624783/231044751-d0d2ad59-3381-4857-afb1-b4e84821fc9a.gif)
 
-✱ } im off-tab pretty often, if i dont publicly reply to you feel free to shoot me a whisper 
 
 
 ✱ } some fandoms im in include FNAF, TF2, BTD, HTF, PTP, DNB, etc. 
