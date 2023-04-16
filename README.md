@@ -22,7 +22,7 @@ aroace, genderfluid & taken (ily [darren](https://github.com/crnge204fan))
  
 
 
-RU, INFJ, autotheism believer / i speak russian, german, spanish, english and a bit of french
+RU, INFJ, / i speak russian, german, spanish, english and a bit of french
 
 
 
