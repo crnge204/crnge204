@@ -6,11 +6,11 @@
 
 
 
-main names i go by are **CRNGE**, *CLYDE* or CURT  ;; HE / HIM ONLY, preferrably no they/them 
+⁠★ — names i go by are **CRNGE**, *CLYDE* or CURT (8teen) ;; HE / HIM ONLY, preferrably no they/them 
 
 
 
-**105k** on Utube , 8teen,  animator+artist ![a74534ea](https://user-images.githubusercontent.com/129624783/230555298-2f4fa235-87b2-4fc0-9ef2-e85e08aea6eb.gif)
+**105k** on Utube , animator+artist ![a74534ea](https://user-images.githubusercontent.com/129624783/230555298-2f4fa235-87b2-4fc0-9ef2-e85e08aea6eb.gif)
 
 
 ✱ *Crnge204 on ALL platforms*
@@ -41,11 +41,11 @@ PT STATUS MEANING.
 
 
 
-**looking for chat**;; happy / int
+**looking for chat** — happy / int
 
-**away**;; tired / drawing / mostly off-tab
+**away** — tired / drawing / mostly off-tab
 
-**busy**;; upset / with partner / dniuf
+**busy** — upset / with partner / dniuf
 
 
 
