@@ -6,7 +6,7 @@
 
 
 
-⁠★ — names i go by are **CRNGE**, *CLYDE* or CURT (8teen) ;; HE / HIM ONLY, preferrably no they/them 
+⁠★ — names i go by are **CRNGE**, *CERV* or CERVUS (ADLT, '05) ;; HE / HIM ONLY, preferrably no they/them 
 
 
 
