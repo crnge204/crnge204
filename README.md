@@ -81,7 +81,7 @@ PT STATUS MEANING.
 
 ✱ } tend to be unknowingly manipulative, let me know if that happens n ill take time away from you (nothing personal!)
 
-✱ } I don't really have a DNI, if i dont like you ill hide you ![1d3e6473](https://user-images.githubusercontent.com/129624783/230557150-741b32cf-c512-46ea-900c-21e45fdc96ac.gif)
+✱ } self diagnosis DNI (especially schizophrenia ya'll are weird asf), TT/TD mfs get off the internet <3, other than that, if i dont like you ill hide you ![1d3e6473](https://user-images.githubusercontent.com/129624783/230557150-741b32cf-c512-46ea-900c-21e45fdc96ac.gif)
 
 
 
