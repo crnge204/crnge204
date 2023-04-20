@@ -9,7 +9,7 @@
 
 ⁠![0323be38](https://user-images.githubusercontent.com/129624783/233168790-fc603df2-7471-44a9-a939-f61bf672391b.gif)
  — names i go by are **CRNGE** ![232468626-03155e97-62cc-4b6b-a5e1-73ae4eb6828d](https://user-images.githubusercontent.com/129624783/233169758-292e306c-125b-436b-ba34-70acc7b71b54.gif)
- *CERV* (ADLT, '05) ;; HE / HIM ONLY, preferrably no they/them 
+ *CERV* (ADLT, '05) ;; HE / HIM ONLY
 
 
 
@@ -18,7 +18,8 @@
 
 
 ![0a5e0000](https://user-images.githubusercontent.com/129624783/233169924-263e6a02-f407-4d21-893e-f474c37ede84.gif)
- *Crnge204 on ALL platforms
+ *Crnge204 on ALL platforms, problem? ![arriwb](https://user-images.githubusercontent.com/129624783/233509458-4c24fe79-f22e-4a60-8b63-39780ad53b58.png) [guestbook](https://crnge204.123guestbook.com/)
+
 
 
 
