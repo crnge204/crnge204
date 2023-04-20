@@ -18,7 +18,7 @@
 
 
 ![0a5e0000](https://user-images.githubusercontent.com/129624783/233169924-263e6a02-f407-4d21-893e-f474c37ede84.gif)
- *Crnge204 on ALL platforms, go send me some hate! <3* 
+ *Crnge204 on ALL platforms
 
 
 
