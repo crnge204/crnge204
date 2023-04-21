@@ -105,10 +105,19 @@ PT STATUS MEANING.
 ![81955350733](https://user-images.githubusercontent.com/129624783/233171382-69019c28-fa25-4ff9-9f2d-17dac7db4aff.png)
 
 
+FANDOMS ! 
+
+these are a *select few* of the fandoms im in and have been in, im obviously multi-fandom ^_^'
+
+highlighted are main fandoms 
+
+**country humans**, warrior cats, wings of fire, **fnaf**, undertale, deltarune, **team fortress 2**, **HLVRAI**, half life, the ride the cyclone world, the heathers, hamilton, south park, dave and bambi, happy tree friends, danganronpa, welcome home, batim, pokemon, **breaking bad**, lego movie, **madness combat**, picos school, the walten files, mandela catalogue, CRK, FNF, chainsaw man, **SCP**, sanrio, dead by daylight, slasher movies, **creepy pastas**, DDLC, resident evil, soul eater, BSD, **boyfriend to death**, minecraft, vocaloid, parrapa the rapper, popee the preformer, steven universe, black butler, TAWOG, sailor moon, lady oscar, murder drones, the last of us, life is strange, marvel, the sims, unicorn wars, star wars, jurassic park, red dead redemption, ace attorney, MLP, JJBA, edd's world, homestuck, identity V, call of duty, **the walking dead** adventure time, DBH, dont starve, ENA, gravity falls, gorillaz, naruto, HxH, invader zim, **kaiju paradise**, TLOZ, OFF, roblox myths, sally face, YTTD, touhou, inanimate insanity, BFDI, doctor who, baldis basics, poppy playtime, dimensional clash & many many more!!
 
 
+![tumblr_c2eaac67af989f5004979c96d957242d_310fd61f_100](https://user-images.githubusercontent.com/129624783/233723590-1bd85746-8cbd-4720-b8dd-92612c170a78.png)
 
 
+thanks 4 reading & wasting your time here :3
 
 
 
