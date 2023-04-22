@@ -23,7 +23,7 @@
 
 
 
-✱ — aroace, genderfluid & taken (ily [ren !!!](https://github.com/crnge204fan)) ![c6d4edf5](https://user-images.githubusercontent.com/129624783/233169485-162bc415-ec22-4550-821d-b1e995efbdec.gif)
+✱ — aroace, genderflux & taken ![c6d4edf5](https://user-images.githubusercontent.com/129624783/233169485-162bc415-ec22-4550-821d-b1e995efbdec.gif)
 
 
  
